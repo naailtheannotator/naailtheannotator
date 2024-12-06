@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to stop you from stalking.
 - 💞️ I’m looking to collaborate with the police.
 - 📫 Reach me by clicking off my profile.
-- 😄 Pronouns: attack/helicopter
+- 😄 Pronouns: go/away
 - ⚡ Fun fact: everyone was born at a very young age.
 
 <!---
